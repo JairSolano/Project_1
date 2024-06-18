@@ -28,3 +28,16 @@
 >Employee does not keep up with the soaring cost 
 >of living in 
 >__*The Magnificent and Vibrant New York City*__  
+
+
+>https://www.coli.org/
+>https://www.nerdwallet.com/cost-of-living-calculator/compare/austin-tx-vs-new-york-manhattan-ny
+>https://www.salary.com/research/cost-of-living/compare/new-york-ny/austin-tx#google_vignette
+>https://www.nerdwallet.com/cost-of-living-calculator/compare/austin-tx-vs-new-york-brooklyn-ny
+>https://www.zillow.com/research/methodology=zori-repeat-rent-27092/
+>https://www.apartments.com/rent-market-trends/new-york-ny/.
+>https://www.zillow.com/research/methodology=zori-repeat-rent-27092/.
+>https://fred.stlouisfed.org/series/SMU36935610500000003
+>https://zillow.mediaroom.com/2024-05-07-New-York-City-rents-grew-seven-times-faster-
+>https://www.bls.gov/regions/northeast/ny_newyork_msa.htm
+>https://data.cityofnewyork.us/City-Government/Citywide-Payroll-Data-Fiscal-Year-/k397-673e/data_preview
